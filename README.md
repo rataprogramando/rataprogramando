@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @rataprogramando
+- 👀 I’m interested in learnig
+- 🌱 I’m currently learning whit SoyHenry
+- 💞️ I’m looking to collaborate on studies
+- 📫 reach me in my mail: benjaminholzheier@gmail.com
